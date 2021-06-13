@@ -4,7 +4,7 @@ Tags: Dip, Spread, Arabian
 
 ### Ingredients:
 
-- Eggplant( 1-2 Large/Medium Italian eggplants)
+- Eggplant(1-2 Large/Medium Italian eggplants)
 - Tahini(~ 200 g)
 - Lemon(~2)
 - Garlic(~1 head)(You can skip peeling and degerming to save time with minimal loss of flavor)
