@@ -16,11 +16,11 @@ Tags: Dip, Spread, Arabian
 ### Steps:
 
 1. Pre-Roast Prep
-    a. Preheat oven to 400 F.
-    b. Slice the eggplant in half and score the flesh in a crisscross pattern.
-    c. Salt the eggplant flesh and let rest for 15-20 minutes.
-    d. Blot out the water released from the eggplant.
-    e. Salt the eggplants again and rub it in olive oil for roasting
+    1. Preheat oven to 400 F.
+    2. Slice the eggplant in half and score the flesh in a crisscross pattern.
+    3. Salt the eggplant flesh and let rest for 15-20 minutes.
+    4. Blot out the water released from the eggplant.
+    5. Salt the eggplants again and rub it in olive oil for roasting
 2. Roast the eggplant in the pre-heated oven for an hour or until deeply caramelized and creamy.
 3. Scrape the eggplant from the skin and add it to the food processor and purée.
 4. Blitz all the garlic with the juice of 2 lemons until the garlic is mostly combined and the liquid turns white, add ground cumin here if desired. Pass through a fine mesh sieve and discard the solids.
