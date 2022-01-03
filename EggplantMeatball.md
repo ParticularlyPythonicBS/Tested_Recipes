@@ -32,15 +32,15 @@ Tags: Italian inspired, Ottolenghi
 3. Toss the eggplant in olive oil, half teaspoon salt and good grind of pepper.
 4. Roast the eggplants in parchment lined oven tray till golden brown, tossing halfway through (~ 30 minutes)
 5. Chop the roasted eggplants into a chunky mash.
-6. Mix in the ricotta, parmesan, parsley, egg, extra yolk, flour, breadcrumbs, a third of the garlic(2 cloves), two and a half tablespoons of basil, a quarter-teaspoon of salt and another good grind of pepper.
+6. Mix in the ricotta, parmesan, parsley, egg, extra yolk, flour, breadcrumbs, a third of the garlic(2 cloves), two and a half tablespoons of basil, a quarter-teaspoon of salt, and another good grind of pepper.
 7. Heat the peanut oil of deep frying to ~350F.
 7. Shape the mixture into balls weighing about 55g (should make around 16).
 8. Fry the dumplings for three to four minutes until golden brown all over.
 9. Heat ywo tablespoon of oil in a suacepot and fry the rest of the garlic(4 cloves) until aromatic
 10. Stir in the  tomato tomatoes, tomato paste, sugar, chilli flakes, paprika, oregano, a teaspoon of salt, a good grind of pepper, and a splash of vodka into the sauce pot and cook well (~ 8 minutes).
 11. Pour in 400 ml water and and bring to a simmer. 
-12. Use an immersion blender to blend into it into a smooth consistency
-13. Continue simnering the sauce to the right consistency (~10 minutes)
+12. Use an immersion blender to blend into it into a smooth consistency.
+13. Continue to simmer the sauce to the right consistency (~10 minutes).
 14. Add the dumpling and cook for another 15 minutes until cooked through.
 15. Remove from heat, scatter olves and the rest of the basil.
 16. Serve straight from pan with additional grating of parmesan.
