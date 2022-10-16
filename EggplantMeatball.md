@@ -36,7 +36,7 @@ Tags: Italian inspired, Ottolenghi
 7. Heat the peanut oil of deep frying to ~350F.
 7. Shape the mixture into balls weighing about 55g (should make around 16).
 8. Fry the dumplings for three to four minutes until golden brown all over.
-9. Heat ywo tablespoon of oil in a suacepot and fry the rest of the garlic(4 cloves) until aromatic
+9. Heat two tablespoon of oil in a saucepot and fry the rest of the garlic(4 cloves) until aromatic.
 10. Stir in the  tomato tomatoes, tomato paste, sugar, chilli flakes, paprika, oregano, a teaspoon of salt, a good grind of pepper, and a splash of vodka into the sauce pot and cook well (~ 8 minutes).
 11. Pour in 400 ml water and and bring to a simmer. 
 12. Use an immersion blender to blend into it into a smooth consistency.
